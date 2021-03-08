@@ -1,2 +1,2 @@
-# three_generations
+# Three generations
 Three Generations Seeking Romance 
